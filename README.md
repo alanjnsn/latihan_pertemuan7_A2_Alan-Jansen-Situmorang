@@ -1,0 +1,1 @@
+# latihan_pertemuan7_A2_Alan-Jansen-Situmorang
